@@ -1,6 +1,6 @@
 Prayer taken from various volumes of *[The Divine Hours](http://www.phyllistickle.com/fixed-hour-prayer/)*.
 
-> O God, who wonderfulyl created, and yet more wonderfully restored, the dignity of human nature: Grant that we may share the divine life of him who humbled himself to share our humanity, your Son Jesus Christ; who lives and reigns with you, in the unity of the Holy Spirit, one God, for ever and ever. *Amen*.
+> O God, who wonderfully created, and yet more wonderfully restored, the dignity of human nature: Grant that we may share the divine life of him who humbled himself to share our humanity, your Son Jesus Christ; who lives and reigns with you, in the unity of the Holy Spirit, one God, for ever and ever. *Amen*.
 
 > Eternal Father, who gave to your incarnate Son the holy name of Jesus to be the sign of our salvation: Plant in every heart, I pray, the love of him who is the Savior of the world, our Lord Jesus Christ; who lives and reigns with you and the Holy Spirit, one God, in glory everlasting. *Amen*.
 
