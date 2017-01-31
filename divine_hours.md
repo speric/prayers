@@ -11,3 +11,5 @@ Prayers taken from various volumes of *[The Divine Hours](http://www.phyllistick
 > Give us grace, O Lord, to answer readily the call of our Savior Jesus Christ and proclaim the Good News of his salvation, that we and the whole world may readily perceive the glory of His marvelous works, who lives and reigns with you and the Holy Spirit, one God, for ever and ever. *Amen*.
 
 > Lord God, almighty and everlasting Father, you have brought us in safety to this new day: Preserve us with your mighty power, that we may not fall into sin, not be overcome by adversity; and in all we do, direct us to the fulfilling of your purpose; through Jesus Christ our Lord. *Amen*.
+
+> Almighty and everlasting God, you govern all things both in heaven and on earth: Mercifully hear the supplications of your people, and in our time grant us your peace; through Jesus Christ our Lord, who lives and reigns with you and the Holy Spirit, one God, for ever and ever. *Amen*.
