@@ -59,4 +59,8 @@ and Pardon._**
 
 > The grace of our Lord Jesus Christ, and the love of God, and the fellowship of the Holy Ghost, be with us all evermore. Amen.
 
-On Sundays, and on other days when it may be convenient, it will be proper to begin with a Chapter, or part of a Chapter, from the New Testamen
+On Sundays, and on other days when it may be convenient, it will be proper to begin with a Chapter, or part of a Chapter, from the New Testament.
+
+> Blessed Lord, who has caused all holy Scriptures to be written for our learning; Grant that we may in such wise hear them, read, mark, learn, and inwardly digest them, that by patience and comfort of your holy Word, we may embrace, and ever hold fast, the blessed hope of everlasting life, which you hasve given us in our Saviour Jesus Christ. *Amen.*
+
+> O Lord, raise up, we pray, your power, and come among us, and with great might assist us; that whereas, through our sins and wickedness, we are hindered in running the race that is set before us, your bountiful grace and mercy may speedily help and deliver us; through the satisfaction of your Son our Lord, to whom, with you and the Holy Ghost, be honour and glory, world with out end. *Amen.*
